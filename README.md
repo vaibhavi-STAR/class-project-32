@@ -1,1 +1,1 @@
-# class-project-32
+# Tablet-SPCK-PRO-C32-Student-Activity
